@@ -1,4 +1,4 @@
-Dear Mentor kindly find attached the replit link for the task
+Dear Assessor kindly find attached the replit link for the task
 
 REPLIT LINK
 
